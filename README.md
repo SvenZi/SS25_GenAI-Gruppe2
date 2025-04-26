@@ -1,1 +1,0 @@
-# SS25_GenAI-Gruppe2
